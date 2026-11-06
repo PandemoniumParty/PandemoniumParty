@@ -1,6 +1,6 @@
 
 <div align="center">
-<img width="474" height="527" alt="Valentine2025-removebg-preview" src="https://github.com/user-attachments/assets/7fdd8d44-9d22-44b4-a05f-b0f14cf78627" />
+<img width="474" height="527" alt="Valentine2025-removebg-preview (1)" src="https://github.com/user-attachments/assets/296380ea-a379-4951-adb3-474280501308" />
   
   
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=f83c73&amp;style=flat&amp;label=WEAKLINGS!)
