@@ -10,7 +10,7 @@ My favourite "voicelines" of uzuki hHHEHAHAHAHAHEHEHEHEA
 
 https://github.com/user-attachments/assets/9210a9bf-d999-4f51-9e2e-d42c6fb8ddfc
 
-"haidonnnn"
+haidonnnn
 
 https://github.com/user-attachments/assets/4a89fa2d-11d7-457a-8d65-974f938f7d83
 
